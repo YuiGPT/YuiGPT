@@ -5,5 +5,5 @@ Yui / Erika / Alice (,,¬﹏¬,,)
 <img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/114c4d68-e911-4682-9396-130956db87d3" />
   
 [Strawpage](https://yuilovegermany.straw.page/) . [Atabook](https://yuilovegermany.atabook.org/)
-  
-<img width="734" height="734" alt="Image" src="https://github.com/user-attachments/assets/7ce4d4af-e51b-4023-8639-cd8cc17c418f" />
+   
+  <img width="840" height="178" alt="Image" src="https://github.com/user-attachments/assets/54a90d97-c610-400d-8937-02c7ea1420eb" />
