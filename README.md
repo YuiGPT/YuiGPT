@@ -1,7 +1,8 @@
 ## ɦʊʀʀʏ ʊք ǟռɖ ƈօʍɛ օʊȶ.... օʀ ɨ'ʟʟ ʄɨռɖ ʏօօօօʊʊʊ.
 
 Yui / Erika / Alice (,,¬﹏¬,,)
-byi! i am mostly afk & offtab without friends, if you want to interact with me please whisper!
+# byi!
+i am mostly afk & offtab without friends, if you want to interact with me please whisper!
   
 [Strawpage](https://yuilovegermany.straw.page/) ‎ .‎  [Atabook](https://yuilovegermany.atabook.org/)
 
