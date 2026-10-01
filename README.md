@@ -5,6 +5,7 @@ my pronouns are he/him but u can call me by any pronouns idccc unless ur gonna c
 my birthday is on 10/20 im turning 14 🥳
 im agender and berrisexual
 i like seyliech yuri and romano
+
 🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
 ### byi!
 i am mostly afk & offtab, if you want to interact with me please whisper!
