@@ -2,7 +2,7 @@
 ### intro
 my name is Yui/Yuan . . (,,¬﹏¬,,)
 
-my pronouns are he/him but u can call me by any pronouns idccc unless ur gonna call me by she/her ewww
+my pronouns are he/him but u can call me by any pronouns
 
 my birthday is on 10/20 im turning 14 🥳
 
