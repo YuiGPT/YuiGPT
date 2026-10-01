@@ -1,15 +1,21 @@
 ## SHUT UP SHUT UP SHUT UP!!!!!!
 ### intro
 my name is Yui/Yuan . . (,,¬﹏¬,,)
+
 my pronouns are he/him but u can call me by any pronouns idccc unless ur gonna call me by she/her ewww
+
 my birthday is on 10/20 im turning 14 🥳
+
 im agender and berrisexual
+
 i like seyliech yuri and romano
 
 🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
 ### byi!
 i am mostly afk & offtab, if you want to interact with me please whisper!
+
 iii may be mean if im in a bad mood so please if i hurted you im so sorry .·°՞(っ-ᯅ-ς)՞°·.
+
 also if ur over 18 pls dont rp ships with me since it makes me uncomfortable!!!!!!!!IWC ALSO
 
 
