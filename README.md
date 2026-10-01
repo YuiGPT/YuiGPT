@@ -8,4 +8,4 @@ i am mostly afk & offtab without friends, if you want to interact with me please
   
 [Strawpage](https://yuilovegermany.straw.page/) ‎ .‎  [Atabook](https://seyliechaura.atabook.org/)
 
-c*h is encouraged ! <img width="263" height="369" alt="Image" src="https://github.com/user-attachments/assets/4291ad99-95f5-410f-b312-c4a0e19c51f9" />
+c*h is encouraged ! <img width="131" height="184" alt="Image" src="https://github.com/user-attachments/assets/4291ad99-95f5-410f-b312-c4a0e19c51f9" />
