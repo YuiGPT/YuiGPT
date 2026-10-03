@@ -6,7 +6,7 @@ my pronouns are he/him but u can call me by any pronouns
 
 my birthday is on 10/20 im turning 14 🥳
 
-im agender and berrisexual
+im pangender and berrisexual
 
 i like seyliech yuri and romano
 
