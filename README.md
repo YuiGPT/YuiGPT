@@ -25,7 +25,7 @@ also if ur over 18 pls dont rp ships with me since it makes me uncomfortable!!!!
   
 [Strawpage](https://yuilovegermany.straw.page/) ‎ .‎  [Atabook](https://seyliechaura.atabook.org/)
 
-c*h is encouraged ! <img width="131" height="184" alt="Image" src="https://github.com/user-attachments/assets/86d8c2d2-6966-4f07-9e6e-793f93ee84f5" />
+c*h is encouraged ! <img width="151" height="184" alt="Image" src="https://github.com/user-attachments/assets/86d8c2d2-6966-4f07-9e6e-793f93ee84f5" />
 
 
 🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
