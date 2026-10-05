@@ -2,7 +2,7 @@
 ### intro
 my name is Yui/Yuan . . (,,¬﹏¬,,)
 
-my pronouns are he/him but u can call me by any pronouns
+i am any pronouns
 
 i like aph and hamsters
 
