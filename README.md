@@ -1,6 +1,8 @@
 ## SHUT UP SHUT UP SHUT UP!!!!!!
 ### intro
-my name is Yui/Yuan . . (,,¬﹏¬,,)
+my name is Yui . . (,,¬﹏¬,,)
+
+u can call me by my other names Yuan and Erika
 
 i am any pronouns
 
