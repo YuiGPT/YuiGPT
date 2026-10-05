@@ -4,6 +4,8 @@ my name is Yui/Yuan . . (,,¬﹏¬,,)
 
 my pronouns are he/him but u can call me by any pronouns
 
+i like aph and hamsters
+
 my birthday is on 10/20 im turning 14 🥳
 
 im pangender and berrisexual
