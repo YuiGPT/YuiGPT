@@ -2,11 +2,11 @@
 ### intro
 my name is Yui . . (,,¬﹏¬,,)
 
-u can call me by my other names Yuan and Erika
+u can call me by my other names Yuan, Petey and Erika
 
 i am any pronouns
 
-i like aph and hamsters
+i like aph, mccafferty and hamsters
 
 my birthday is on 10/20 im turning 14 🥳
 
