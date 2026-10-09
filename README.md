@@ -12,7 +12,9 @@ my birthday is on 10/20 im turning 14 🥳
 
 im pangender and berrisexual
 
-i like seyliech yuri and romano
+i like seyliech and prumano alot
+
+i heavily kin romano and hes my self insert ^_^
 
 🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
 ### byi!
@@ -23,6 +25,16 @@ for my other moots in pt/pls if u think im ignoring you while i hang out with my
 iii may be mean if im in a bad mood or if i just met u so please if i hurted you im so sorry .·°՞(っ-ᯅ-ς)՞°·.
 
 also if ur over 18 pls dont rp ships with me since it makes me uncomfortable!!!!!!!!IWC ALSO
+
+🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
+### dni
+dni if you like spamano & itacest, and many more darkships
+
+also basic dni criteria
+
++ romano fictkins/heavykins dni unless i do (KINS ARE OKAY!!!!!)
+
+there is more dni list in my strawpage make sure to read dat im too lazy to add it here okay
 
 
   <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/d38dfb55-1acb-4785-ab91-05dc27c0f191" />
