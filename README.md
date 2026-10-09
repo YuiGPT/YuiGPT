@@ -32,7 +32,7 @@ dni if you like spamano & itacest, and many more darkships
 
 also basic dni criteria
 
-+ romano fictkins/heavykins dni unless i do (KINS ARE OKAY!!!!!)
++ romano fictkins/heavykins dni unless i do (NORMAL KINS ARE OKAY!!!!!)
 
 there is more dni list in my strawpage make sure to read dat im too lazy to add it here okay
 
