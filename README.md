@@ -14,7 +14,9 @@ im pangender and berrisexual
 
 i like seyliech and prumano alot
 
-i heavily kin romano and hes my self insert ^_^
+i heavily kin romano okay
+
+lithuania
 
 🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
 ### byi!
