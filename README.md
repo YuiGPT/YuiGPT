@@ -16,9 +16,13 @@ i like seyliech and prumano alot
 
 i yumeship with germany, seychelles & hyuna
 
-doubles can interact unless you yumeship with seychelles
+Germany - SelectiveSharing-yume
 
-im a hypersharing germany & hyuna yume only with my friends and moots ^_^
+Hyuna - Sharing yume
+
+Seychelles - Nonsharing yume doubles dni
+
+im a hypersharing germany yume only with my friends and moots ^_^
 
 i heavily kin romano okay
 
