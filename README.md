@@ -18,6 +18,8 @@ i yumeship with germany, seychelles & hyuna
 
 doubles can interact unless you yumeship with seychelles
 
+im a hypersharing germany & hyuna yume only with my friends and moots ^_^
+
 i heavily kin romano okay
 
 lithuania
@@ -39,6 +41,8 @@ dni if you like spamano & itacest, and many more darkships
 also basic dni criteria
 
 + romano fictkins/heavykins dni unless i do (NORMAL KINS ARE OKAY!!!!!)
+
+DNI SEYCHELLES YUME DOUBLES AHHHHHHHHHHHHHHHHHHHHHHHHHH
 
 there is more dni list in my strawpage make sure to read dat im too lazy to add it here okay
 
