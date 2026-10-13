@@ -12,6 +12,8 @@ my birthday is on 10/20 im turning 14 🥳
 
 im pangender and berrisexual
 
+🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
+
 ### more
 
 i like seyliech and prumano alot
