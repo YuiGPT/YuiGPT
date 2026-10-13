@@ -10,7 +10,7 @@ i like aph, mccafferty and hamsters
 
 my birthday is on 10/20 im turning 14 🥳
 
-im pangender and berrisexual
+im pangender
 
 🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
 
