@@ -14,6 +14,10 @@ im pangender and berrisexual
 
 i like seyliech and prumano alot
 
+i yumeship with germany, seychelles & hyuna
+
+doubles can interact unless you yumeship with seychelles
+
 i heavily kin romano okay
 
 lithuania
