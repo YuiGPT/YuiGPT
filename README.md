@@ -16,7 +16,7 @@ im pangender
 
 ### more
 
-i like seyliech and prumano alot
+i like seyliech prumano and canmano alot
 
 i yumeship with germany, seychelles & hyuna
 
@@ -57,7 +57,7 @@ there is more dni list in my strawpage make sure to read dat im too lazy to add 
 
   <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/d38dfb55-1acb-4785-ab91-05dc27c0f191" />
   
-[Strawpage](https://yuilovegermany.straw.page/) ‎ .‎  [Atabook](https://seyliechaura.atabook.org/)
+[Strawpage](https://lovinotomato.straw.page/) ‎ .‎  [Atabook](https://seyliechaura.atabook.org/)
 
 c*h is encouraged ! <img width="180" height="184" alt="Image" src="https://github.com/user-attachments/assets/86d8c2d2-6966-4f07-9e6e-793f93ee84f5" />
 
