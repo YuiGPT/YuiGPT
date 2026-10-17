@@ -54,11 +54,6 @@ also basic dni criteria
 + romano fictkins/heavykins dni unless i do (NORMAL KINS ARE OKAY!!!!!)
 
 DNI SEYCHELLES YUME DOUBLES AHHHHHHHHHHHHHHHHHHHHHHHHHH
-
-there is more dni list in my strawpage make sure to read dat im too lazy to add it here okay
-
-
-  <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/d38dfb55-1acb-4785-ab91-05dc27c0f191" />
   
 [Strawpage](https://lovinotomato.straw.page/) ‎ .‎  [Atabook](https://seyliechaura.atabook.org/)
 
