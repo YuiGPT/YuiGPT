@@ -1,4 +1,4 @@
-## SHUT UP SHUT UP SHUT UP!!!!!!
+## look, im a big cat. dont you want to scratch my belly?
 ### intro
 my name is Yui . . (,,¬﹏¬,,)
 
@@ -12,8 +12,8 @@ my birthday is on 10/20 im turning 14 🥳
 
 im pangender
 
-🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
-
+🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈
+ 
 ### more
 
 i like seyliech prumano and canmano alot
@@ -32,7 +32,7 @@ i heavily kin romano okay
 
 lithuania
 
-🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
+🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈
 ### byi!
 i am mostly afk & offtab, if you want to interact with me please whisper!
 
@@ -42,9 +42,12 @@ iii may be mean if im in a bad mood or if i just met u so please if i hurted you
 
 also if ur over 18 pls dont rp ships with me since it makes me uncomfortable!!!!!!!!IWC ALSO
 
-🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
+🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈
 ### dni
-dni if you like spamano & itacest, and many more darkships
+dni if you like darkships :
+
+sealat, swissliech, usuk, spamano, itacest, rusabel, pruger, and many more.
+
 
 also basic dni criteria
 
@@ -62,6 +65,6 @@ there is more dni list in my strawpage make sure to read dat im too lazy to add 
 c*h is encouraged ! <img width="180" height="184" alt="Image" src="https://github.com/user-attachments/assets/86d8c2d2-6966-4f07-9e6e-793f93ee84f5" />
 
 
-🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
+🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈🐈
 
 old githubs are 0M0RI-sunny , AphGerita , AphItalyVeneziano
