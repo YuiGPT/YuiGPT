@@ -18,13 +18,9 @@ im pangender
 
 i like seyliech prumano and canmano alot
 
-i yumeship with germany, seychelles & hyuna
+i yumeship with Germany & Seychelles yume
 
-Germany - SelectiveSharing-yume
-
-Hyuna - Sharing yume
-
-Seychelles - Nonsharing yume doubles dni
+Germany yumes dni unless friend 😈😈😈
 
 im a hypersharing germany yume only with my friends and moots ^_^
 
