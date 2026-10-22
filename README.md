@@ -1,4 +1,4 @@
-## look, im a big cat. dont you want to scratch my belly?
+## the hateful romano filled with hatred
 ### intro
 my name is Yui . . (,,¬﹏¬,,)
 
