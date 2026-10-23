@@ -20,9 +20,7 @@ i like seyliech prumano and canmano alot
 
 i yumeship with Germany & Seychelles yume
 
-Germany yumes dni unless friend 😈😈😈
-
-im a hypersharing germany yume only with my friends and moots ^_^
+Germany yumes can interact 
 
 i heavily kin romano okay
 
