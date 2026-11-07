@@ -1,2 +1,3 @@
-<img width="1323" height="1650" alt="Image" src="https://github.com/user-attachments/assets/b0e6d08a-e851-4a3a-95f1-0a5bceb844aa" /> 
-a big wip
+<p align="center">
+  <img src="[path/to/image.png](https://github.com/user-attachments/assets/dd9c673d-befe-4d0c-983d-55a9be8037c2)" alt="Alternate text"  width="1080" height="1852" />
+</p>
