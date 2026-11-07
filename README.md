@@ -1,3 +1,3 @@
-<p align="center">
-  <img src="[path/to/image.png](https://github.com/user-attachments/assets/dd9c673d-befe-4d0c-983d-55a9be8037c2)" alt="Alternate text"  width="1080" height="1852" />
-</p>
+<div align="center">
+  <img src=":/Users/jayzr/Downloads/22e56f02d28b11954180f943606c660b.jpg" alt="Description" width="300">
+</div>
