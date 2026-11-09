@@ -8,8 +8,5 @@
   <img src="https://github.com/user-attachments/assets/1e67e011-4f73-4961-85e8-698f3c24e97a" alt="Description" style="width: 195px; height: 82px; background: transparent; border: none; box-shadow: none;">
 </div>
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/fa3d72f6-bb21-42a9-ad3e-256f447fe854" alt="Description" style="width: 1124px; height: 475px; background: transparent; border: none; box-shadow: none;">
-</div>
-<div align="center">
-  <img src="https://github.com/user-attachments/assets/3a88e408-390b-4a53-bd4e-493f3f5bd180" alt="Description" style="width: 1124px; height: 475px; background: transparent; border: none; box-shadow: none;">
+  <a href="https://germanbier.straw.page/"><img src="https://github.com/user-attachments/assets/d09a7f4a-85d3-4636-8880-4c84814d1964" alt="Strawpage" style="width: 217px; height: 293px; background: transparent; border: none; box-shadow: none;"></a><a href="https://finnishwife.atabook.org/"><img src="https://github.com/user-attachments/assets/f154320f-2dfd-4c16-a9dc-681960272a09" alt="Atabook" style="width: 217px; height: 293px; background: transparent; border: none; box-shadow: none;"></a>
 </div>
