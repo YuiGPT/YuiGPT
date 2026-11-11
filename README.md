@@ -15,3 +15,6 @@
   <a href="https://germanbier.straw.page/"><img src="https://github.com/user-attachments/assets/d09a7f4a-85d3-4636-8880-4c84814d1964" alt="Strawpage" style="width: 217px; height: 293px; background: transparent; border: none; box-shadow: none;"></a><a href="https://finnishwife.atabook.org/"><img src="https://github.com/user-attachments/assets/f154320f-2dfd-4c16-a9dc-681960272a09" alt="Atabook" style="width: 217px; height: 293px; background: transparent; border: none; box-shadow: none;"></a>
 </div>
 
+
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Condensed&duration=4000&pause=1000&color=8AA971A9&center=true&vCenter=true&width=435&lines=This+lovely+day+has+flown+away;The+time+has+come+to+part;We'll+kiss+again%2C+like+this+again;Don't+let+the+teardrops+start;With+love+that's+true;I'll+wait+for+you;Auf+wiedersehen%2C+sweetheart)](https://git.io/typing-svg)
