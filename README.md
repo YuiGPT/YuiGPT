@@ -10,4 +10,4 @@
 $$ \textcolor{#697A5D}{\text{✚᭪݁   .   hallo im yuan      。    he / them        ཀ}} $$
 $$ \textcolor{#7A8F6D}{\text{𓈒   𓏼      10/20      。    minor        ﹒♡}} $$
 $$ \textcolor{#7A8F6D}{\text{.　⟢　DNI DARKSHIPPERS/PROSHIPPERS, HOMOPHOBES/TRANSPHOBES }} $$
-$$ \textcolor{#7A8F6D}{\text{AND BASIC DNI CRITERIA. check strawpage dni for full dni list.　　˘}} $$
+$$ \textcolor{#7A8F6D}{\text{     AND BASIC DNI CRITERIA. check strawpage dni for full dni list.　　˘}} $$
