@@ -1,3 +1,9 @@
+<p align="center">
+  <a href="https://git.io/typing-svg">
+    <img src="https://readme-typing-svg.demolab.com?font=PT+Sans&duration=1000&pause=1000&color=94F74492&center=true&width=435&lines=So%2C+baby%2C+I+talk%2C+I+talk;I+talk+to+you;In+the+night%2C+in+your+dream;of+love+so+true;I+talk%2C+I+talk%2C+I+talk+to+you;In+the+night%2C+in+your+dream+;of+love+so+true" alt="Typing SVG" />
+  </a>
+</p>
+
 <div style="text-align: center;">
   <img src="https://github.com/user-attachments/assets/a85c1299-6067-4aaf-b28f-0c4ff7bdba3c" alt="Centered Image">
 </div>
