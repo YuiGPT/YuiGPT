@@ -7,11 +7,13 @@
 <div style="text-align: center;">
   <img src="https://github.com/user-attachments/assets/a85c1299-6067-4aaf-b28f-0c4ff7bdba3c" alt="Centered Image">
 </div>
+
 <div align="center">
-  <img width="426" height="230" alt="lv_0_20261115000531" src="https://github.com/user-attachments/assets/d3a27918-1ff7-4a06-9390-c5c58c0add49" />
+  <img width="226" height="4310" alt="lv_0_20261115000531" src="https://github.com/user-attachments/assets/d3a27918-1ff7-4a06-9390-c5c58c0add49" />
 </div>
+
 <div align="center">
-  <img width="543px" height="104px" alt="https://github.com/user-attachments/assets/a85c1299-6067-4aaf-b28f-0c4ff7bdba3c" src="https://github.com/user-attachments/assets/a85c1299-6067-4aaf-b28f-0c4ff7bdba3c" />
+  <img width="543px" height="104px" alt="tumblr_d9ebd83104bf79f665b2f48ca3b107a3_725d7ae3_1280" src="https://github.com/user-attachments/assets/3aae016e-9696-41b9-b1eb-37d13d8f8a83" />
 </div>
 
 $$ \textcolor{#697A5D}{\text{✚᭪݁   .   hallo im yuan      。    he / them        ཀ}} $$
@@ -25,3 +27,7 @@ $$ \textcolor{#7A8F6D}{\text{     AND BASIC DNI CRITERIA. check strawpage dni fo
   <a href="https://germanbier.straw.page/">Strawpage</a> •
   <a href="https://finnishwife.atabook.org/">Atabook</a>
 </p>
+
+<div align="center">
+  <img width="200px" height="200px" alt="tumblr_ad66c8b2e17b7c1eeae2d948818c6d27_fd886cb9_500" src="https://github.com/user-attachments/assets/850d3ddd-094d-4258-a856-a8bc5bdf1af1" />
+</div>
