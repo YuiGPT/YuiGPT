@@ -20,7 +20,7 @@ $$ \textcolor{#697A5D}{\text{✚᭪݁   .   hallo im yuan      。    he / them 
 $$ \textcolor{#7A8F6D}{\text{𓈒   𓏼      10/20      。    minor        ﹒♡}} $$
 $$ \textcolor{#7A8F6D}{\text{.　⟢　DNI DARKSHIPPERS/PROSHIPPERS, HOMOPHOBES/TRANSPHOBES }} $$
 $$ \textcolor{#8BAB79}{\text{     AND BASIC DNI CRITERIA. check strawpage dni for full dni list.　　˘}} $$
-$$ \textcolor{#8BAB79}{\text{i block n hide freely . .}} $$
+$$ \textcolor{#8BAB79}{\text{i block and hide freely . .}} $$
 
 <img width="1920px" height="123px" alt="tumblr_2af224123a0bc531cc160a9221fddeb1_78ea4468_2048" src="https://github.com/user-attachments/assets/226a26ac-0a0e-4742-a7e9-c4385b1d4c83" />
 
