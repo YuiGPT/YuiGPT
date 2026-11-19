@@ -24,7 +24,7 @@ $$ \textcolor{#8BAB79}{\text{i block and hide freely . .}} $$
 
 <img width="1920px" height="123px" alt="tumblr_2af224123a0bc531cc160a9221fddeb1_78ea4468_2048" src="https://github.com/user-attachments/assets/226a26ac-0a0e-4742-a7e9-c4385b1d4c83" />
 
-$$ \textcolor{#697A5D}{\text{iwec/dni north italy cosplayers and respectfully do not rp ships with me UNLESS bf}} $$
+$$ \textcolor{#9EBD64}{\text{iwec/dni north italy cosplayers and respectfully do not rp ships with me UNLESS bf}} $$
 
 <p align="center">
   <a href="https://germanbier.straw.page/">Strawpage</a> •
