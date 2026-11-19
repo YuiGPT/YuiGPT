@@ -16,7 +16,7 @@
   <img width="543px" height="184px" alt="tumblr_d9ebd83104bf79f665b2f48ca3b107a3_725d7ae3_1280" src="https://github.com/user-attachments/assets/3aae016e-9696-41b9-b1eb-37d13d8f8a83" />
 </div>
 
-$$ \textcolor{#697A5D}{\text{✚᭪݁   .   hallo im yuan      。    he / them        ཀ}} $$
+$$ \textcolor{#697A5D}{\text{✚᭪݁   .   hallo im ludwig, you can also call me by yuan      。    he / him        ཀ}} $$
 $$ \textcolor{#7A8F6D}{\text{𓈒   𓏼      10/20      。    minor        ﹒♡}} $$
 $$ \textcolor{#7A8F6D}{\text{.　⟢　DNI DARKSHIPPERS/PROSHIPPERS, HOMOPHOBES/TRANSPHOBES }} $$
 $$ \textcolor{#8BAB79}{\text{     AND BASIC DNI CRITERIA. check strawpage dni for full dni list.　　˘}} $$
@@ -24,7 +24,7 @@ $$ \textcolor{#8BAB79}{\text{i block and hide freely . .}} $$
 
 <img width="1920px" height="123px" alt="tumblr_2af224123a0bc531cc160a9221fddeb1_78ea4468_2048" src="https://github.com/user-attachments/assets/226a26ac-0a0e-4742-a7e9-c4385b1d4c83" />
 
-$$ \textcolor{#9EBD64}{\text{iwec/dni north italy cosplayers and respectfully do not rp ships with me UNLESS bf}} $$
+$$ \textcolor{#90BD7B}{\text{iwec/dni north italy cosplayers and respectfully do not rp ships with me UNLESS bf}} $$
 
 <p align="center">
   <a href="https://germanbier.straw.page/">Strawpage</a> •
